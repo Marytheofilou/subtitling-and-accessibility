@@ -49,6 +49,10 @@ Relevant training includes:
 
 Examples of professional work are not publicly included where
 confidentiality, copyright, or client restrictions apply.
+See here:
+https://youtu.be/1CmMfIBmrV0?si=W8z8-eWITer6nYny
+https://www.lifo.gr/podcasts/zoume-re/i-noimatiki-glossa-mpainei-stin-exypiretisi-ton-politon
+https://www.youtube.com/watch?v=ex_Nj9FaRkY&t=15s
 
 ## Author
 
